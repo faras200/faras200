@@ -1,6 +1,6 @@
 # Halo semua! 
 
-Perkenalkan nama saya *Farras Aldi Alfikri*.\
+Perkenalkan nama saya *Farras Aldi Alfikri*
 
 Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/farras-aldi-alfikri-4161111b5/) ku ya.
 
